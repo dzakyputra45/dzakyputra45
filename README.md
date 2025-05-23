@@ -1,4 +1,4 @@
-![Banner](img/github-header-image%20(1).png)
+![Banner](img/Banner.png)
 
 
 - 💬 Ask me about
