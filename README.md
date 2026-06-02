@@ -32,9 +32,6 @@
 
 ------
 
-![Gif Coding](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExY3ZiOHFrdmFmMGdma2w5eG41M3FzdzJqbTVvNmdxdG9vN28zZm5pNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/78XCFBGOlS6keY1Bil/giphy.gif)
-
-
 ##### PLAY GAME WITH ME 👍
 
 
